@@ -1,3 +1,12 @@
+# 👁‍🗨For those whose syntax resonates
+If you are inspired by this cosmic syntax, modest dimensional support is available from
+[🪙 Support Me](https://buymeacoffee.com/casmikka11)
+
+🔗Click here for detailed payment and sales policies→
+[Payment & Sales Information](Payment&SalesInformation.md)
+
+---
+
 # ✨Intoroduce
 nstead of reading the Bible or Aleister Crowley’s Book of the Law in a conventional or dogmatic way,\
 I interpret them through the lens of daily life and the pace of the soul—allowing them to become part of my living, breathing experience.\
