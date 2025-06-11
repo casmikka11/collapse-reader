@@ -14,7 +14,7 @@ Please note: My interpretations often differ from those of established religious
 
 ## 📚Bible link
 - [Bible](https://www.wordproject.org/index.htm)
-- [The Book of the Low](https://lib.oto-usa.org/libri/liber0220.html)
+- [OTO　Official Web Site](https://lib.oto-usa.org/libri/liber0220.html)
 
 ---
 
